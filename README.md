@@ -1,4 +1,4 @@
-[exercise time](https://youtu.be/A5S23KS_-bU?t=2241)
+[next step - exercise time](https://youtu.be/A5S23KS_-bU?t=2241)
 
 # yes
 
